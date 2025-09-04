@@ -1,0 +1,40 @@
+# milahu/awesome-pornstars
+
+porn!
+
+## wanted specs
+
+- female
+- small tits with big nipples
+  - because big tits are a sign of degeneration
+- big ass
+- white skin or light-brown skin
+- dark hair
+- short hair
+- brown eyes
+- no piercings, no tattoos
+
+## pornstars
+
+### Julia Roca
+
+type F4?
+
+- https://www.pornhub.com/pornstar/julia-roca
+- https://www.pornhub.com/video/search?search=julia+roca
+- https://www.eporner.com/pornstar/julia-roca-xOQ2A/
+
+## sources
+
+- [pornhub: small tits](https://www.pornhub.com/video?c=59)
+
+## related
+
+- [p2p-killerapp/doc/2025-09-04.generic-tagging-and-voting-system.md](https://github.com/milahu/p2p-killerapp/blob/main/doc/2025-09-04.generic-tagging-and-voting-system.md)
+
+## mirrors
+
+- https://github.com/milahu/awesome-pornstars
+- http://gg6zxtreajiijztyy5g6bt5o6l3qu32nrg7eulyemlhxwwl6enk6ghad.onion/milahu/awesome-pornstars
+- http://git.dkforestseeaaq2dqz2uflmlsybvnq2irzn4ygyvu53oazyorednviid.onion/milahu/awesome-pornstars
+- http://it7otdanqu7ktntxzm427cba6i53w6wlanlh23v5i3siqmos47pzhvyd.onion/milahu/awesome-pornstars
