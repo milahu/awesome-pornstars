@@ -13,6 +13,7 @@ porn!
 - short hair
 - brown eyes
 - no piercings, no tattoos
+- long straight nose
 
 ## pornstars
 
@@ -23,6 +24,19 @@ type F4?
 - https://www.pornhub.com/pornstar/julia-roca
 - https://www.pornhub.com/video/search?search=julia+roca
 - https://www.eporner.com/pornstar/julia-roca-xOQ2A/
+
+### Leyre Pajon
+
+type F3?
+
+small tits, big ass, brunette, short hair, long straight nose
+
+- https://www.pornhub.com/video/search?search=leyre+pajon
+- https://www.porzo.com/pornstar/leyre-pajon
+- https://www.cumlouder.com/de/nackte/leyre-pajon/
+- https://www.tubepornstars.com/pornstar/leyre-pajon
+- https://www.maturetube.com/pornstar/leyre-pajon
+- https://fuckmoral.com/en/pornstar/leyre-pajon
 
 ## sources
 
