@@ -11,9 +11,13 @@ porn!
 - white skin or light-brown skin
 - dark hair
 - short hair
+- straight hair
 - brown eyes
-- no piercings, no tattoos
 - long straight nose
+- no piercings
+- no tattoos
+- no implants
+- no glasses
 
 ## pornstars
 
