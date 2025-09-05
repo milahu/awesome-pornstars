@@ -37,10 +37,13 @@ small tits, big ass, brunette, short hair, long straight nose
 - https://www.tubepornstars.com/pornstar/leyre-pajon
 - https://www.maturetube.com/pornstar/leyre-pajon
 - https://fuckmoral.com/en/pornstar/leyre-pajon
+- https://ge.xhamster.desi/pornstars/leyre-pajon
 
 ## sources
 
 - [pornhub: small tits](https://www.pornhub.com/video?c=59)
+- [bootytape: small boobs, no anal, big nipples, big ass, brunette](https://ssl.bootytape.com/torrents.php?search=&tagsearch=small+boobs%2C+no+anal%2C+big+nipples%2C+big+ass%2C+brunette&cat=0&tags=1)
+- [myporn.club: smalltits bigass brunette](https://myporn.club/s/smalltits-bigass-brunette)
 
 ## related
 
