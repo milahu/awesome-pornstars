@@ -39,6 +39,14 @@ type F3?
 
 small tits, big ass, brunette, short hair, long straight nose
 
+aka: Leyre Blue
+
+![](img/leyre-pajon/twitter-leyre_blue/A1tPlWICMAAdlVa.jpeg.q010.webp)
+
+![](img/leyre-pajon/twitter-leyre_blue/BAVNAgXCcAAp7mN.jpeg.q010.webp)
+
+![](img/leyre-pajon/twitter-leyre_blue/BAWAw1kCEAERRIW.jpeg.q010.webp)
+
 - https://www.pornhub.com/video/search?search=leyre+pajon
 - https://www.porzo.com/pornstar/leyre-pajon
 - https://www.cumlouder.com/de/nackte/leyre-pajon/
@@ -46,6 +54,7 @@ small tits, big ass, brunette, short hair, long straight nose
 - https://www.maturetube.com/pornstar/leyre-pajon
 - https://fuckmoral.com/en/pornstar/leyre-pajon
 - https://ge.xhamster.desi/pornstars/leyre-pajon
+- https://x.com/leyre_blue
 
 ## sources
 
