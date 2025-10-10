@@ -56,6 +56,14 @@ aka: Leyre Blue
 - https://ge.xhamster.desi/pornstars/leyre-pajon
 - https://x.com/leyre_blue
 
+### Allie Haze
+
+type F3
+
+small tits, big ass, brunette
+
+![](img/allie-haze/pornstar_allie_haze_launches_new_official_website.jpg)
+
 ## sources
 
 - [pornhub: small tits](https://www.pornhub.com/video?c=59)
